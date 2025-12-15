@@ -1,4 +1,4 @@
-# Deep Cleaning Services
+# Deep Cleaning Solutions
 
 We provide professional deep cleaning services for homes, offices, hotels, restaurants, healthcare facilities, and industrial spaces. Our services are designed to ensure complete hygiene, cleanliness, and a healthier environment using advanced tools and eco-friendly methods.
 

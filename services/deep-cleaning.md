@@ -1,23 +1,20 @@
-# Deep Cleaning Services
+Deep-Cleaning-Solutions
+A professional Deep Cleaning Services website for homes, offices, hotels, restaurants and industrial spaces, built with clean UI and responsive layout.
 
-Our deep cleaning service provides thorough and detailed cleaning for homes, offices, and commercial spaces. It focuses on removing stubborn dirt, grease, bacteria, and hidden dust from every corner.
+🏠 Services We Offer
+Bedroom & Home Deep Cleaning
+Office Deep Cleaning
+Hotel & Restaurant Cleaning
+Healthcare Facility Cleaning
+Industrial Deep Cleaning
+Common Area & Lobby Cleaning
 
-## What Is Included
-- Kitchen deep cleaning (chimney, slabs, cabinets)
-- Bathroom & toilet deep cleaning
-- Floor and tile scrubbing
-- Furniture and surface sanitization
-- Hard-to-reach area cleaning
-
-## Ideal For
-- Move-in / move-out cleaning
-- Post-renovation cleaning
-- Festival or seasonal cleaning
-- Homes needing complete hygiene care
-
-## Why Choose Our Deep Cleaning
-- Professional trained staff
-- Safe and eco-friendly products
-- Advanced tools and techniques
-- High-quality and reliable service
+✨ Why Choose Us
+Trained professional cleaning staff
+Use of safe and effective cleaning chemicals
+Advanced cleaning equipment
+Hygienic and eco-friendly methods
+Reliable and affordable services
+🌐 Visit Our Website
+https://www.missterneat.com/
 

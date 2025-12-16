@@ -9,8 +9,6 @@ Office Deep Cleaning ek detailed cleaning process hai jo sirf visible surfaces n
 - Germs, bacteria aur allergens kam hote hain  
 - Furniture aur flooring ki lifespan increase hoti hai  
 
----
-
 ## 🧹 Services Included
 
 ### 🪑 Workstations & Furniture
@@ -40,28 +38,12 @@ Office Deep Cleaning ek detailed cleaning process hai jo sirf visible surfaces n
 ### 🛋️ Common Areas
 - Reception aur waiting area cleaning  
 - Meeting rooms sanitization  
-- Door handles, switches aur lift buttons  
-
----
-
-## ⏰ Recommended Cleaning Schedule
-
-| Area | Frequency |
-|------|----------|
-| Workstations | Weekly |
-| Washrooms | Daily + Monthly Deep Clean |
-| Carpets | Monthly |
-| Glass & Windows | Monthly |
-| Complete Office | Quarterly |
-
----
-
+- Door handles, switches aur lift buttons
+- 
 ## ⚠️ Safety Guidelines
 - Eco-friendly & approved cleaning chemicals  
 - Gloves, masks aur safety equipment ka use  
 - Electrical devices ke paas extra care  
-
----
 
 ## ✅ Benefits
 - Professional trained staff  
@@ -69,15 +51,11 @@ Office Deep Cleaning ek detailed cleaning process hai jo sirf visible surfaces n
 - Time aur cost efficiency  
 - High hygiene standards  
 
----
-
 ## 📞 Contact
 **Misster Neat – Professional Cleaning Services**  
 
 🌐 Website: https://www.missterneat.com/  
 📱 Phone: +91-8851628884  
-
----
 
 ## 🏷️ Tags
 `office-deep-cleaning` `commercial-cleaning` `workplace-hygiene`

@@ -52,7 +52,7 @@ Office Deep Cleaning ek detailed cleaning process hai jo sirf visible surfaces n
 - High hygiene standards  
 
 ## 📞 Contact
-**Misster Neat – Professional Cleaning Services**  
+**Missterneat – Professional Cleaning Services**  
 
 🌐 Website: https://www.missterneat.com/  
 📱 Phone: +91-8851628884  

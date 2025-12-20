@@ -31,4 +31,12 @@ Keeping industrial facilities clean is not just about aesthetics—it's crucial 
 - **Professional Cleaning Teams**
 - **Top Cleaning Services Provider in India**
 
+🌐 Contact Information
+
+📞 Phone Number
++91-8851628834
+
+🌍 Website
+https://www.missterneat.com
+
 *Invest in industrial deep cleaning today and ensure a safer, cleaner, and more productive workplace.*

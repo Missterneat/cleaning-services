@@ -81,16 +81,12 @@ Hotel and restaurant environments experience high foot traffic, food handling, a
 | Restrooms       | Daily / Weekly   |
 | Carpets & Floors| Monthly          |
 
----
-
 ## Health & Safety Compliance
 
 - Follow local health department regulations
 - Use food-safe and non-toxic cleaning products
 - Train staff on chemical handling
 - Maintain cleaning logs and checklists
-
----
 
 ## Benefits of Professional Deep Cleaning
 

@@ -1,6 +1,6 @@
-# Floor Scrubbing Cleaning Services – Missternest
+# Floor Scrubbing Cleaning Services – Missterneat
 
-Missternest provides professional floor scrubbing cleaning services designed to deeply clean, restore, and maintain hard floor surfaces for residential and commercial spaces.
+Missterneat provides professional floor scrubbing cleaning services designed to deeply clean, restore, and maintain hard floor surfaces for residential and commercial spaces.
 
 ## 🧼 Overview
 
@@ -48,22 +48,22 @@ Floor scrubbing is an advanced deep-cleaning process that removes stubborn dirt,
 - Extended floor lifespan  
 - Ideal for high-traffic areas  
 
-## 🌱 Missternest Cleaning Standards
+## 🌱 Missterneat Cleaning Standards
 
 - Eco-friendly and non-toxic products  
 - Safe for people and pets  
 - Low-water usage methods  
 - Professional equipment and trained staff  
 
-## 📦 Service Options by Missternest
+## 📦 Service Options by Missterneat
 
 - One-time deep floor scrubbing  
 - Scheduled maintenance cleaning  
 - Customized cleaning plans based on floor type  
 
-## 🚀 Why Choose Missternest?
+## 🚀 Why Choose Missterneat?
 
-Missternest delivers professional floor scrubbing services that restore floor cleanliness, improve durability, and maintain hygiene standards with reliable and consistent results.
+Missterneat delivers professional floor scrubbing services that restore floor cleanliness, improve durability, and maintain hygiene standards with reliable and consistent results.
 
 ## Get In Touch
 
